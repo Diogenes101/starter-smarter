@@ -1,0 +1,2 @@
+# starter-smarter
+absolute trash
